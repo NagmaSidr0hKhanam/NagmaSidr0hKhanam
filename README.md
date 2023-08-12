@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @NagmaSidr0hKhanam
+- 👀 I’m interested in C
